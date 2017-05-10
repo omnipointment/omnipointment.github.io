@@ -1,1 +1,0 @@
-# omnipointment.github.io
